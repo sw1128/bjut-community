@@ -1,2 +1,3 @@
-# bjut-community
-北京工业大学（BJUT）校园社区，可以出/收闲置、出/收校园网流量、分享、闲聊···
+# BJUT 校园社区
+
+👉 https://mywangxx.cn
